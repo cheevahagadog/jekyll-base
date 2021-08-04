@@ -1,25 +1,23 @@
 ---
 layout: post
-title:  "2020 is hindsight"
-date:   2021-01-01 13:46:40
+title:  "Rediscovering your inherited purpose, pt 2"
+date:   2021-01-17
 categories: 
 ---
-As we start 2021 with hope, we carry heavy lessons from turbulent 2020. Exactly what the lessons are and how we will interpret them in the coming months is less clear. 
+What's the purpose of a fox? Well, to do fox things. The same for hammers, horses or even proteins at the cellular level. But we seem to get confused when the question reaches us.
 
-What's more consistent is our yearning for things to be normal again.
+Aristotle saw human rational thought ability as our defining characteristic. Exercising this unique trait well to "perform activities of the soul" was "man's proper function." By our design and shape, we can do many things physically, but the world around us is more a tribute to our human ability for ingenuity and rational excellence than our physical prowess. 
 
-**But if returning to normal means returning to a state that could set off 2020 again, I'm not sure normal is a good thing.**
+We don't exist alone in a vacuum. We are social animals. Like a hammer is most itself driving in a nail, we are most human applying our characteristic ability to reason to society. Isolated from society, we cannot fully fulfill our primary purpose as humans. 
 
-In 1871, after a fire devoured Chicago's wooden city, going back to normal might have meant building the city with wood again. The plague and devastating fires doubly hit London in 1666.
+Being a human means you're embedded in a web of roles and relationships. For example, male roles include father, husband, boyfriend, son, friend, businessman, uncle, hunter, employee, etc. The man who is more or less thriving in each of his roles fulfills his inherited purpose.
 
-I once heard a crisis is a terrible thing to waste. This phrase makes more sense to me now. 
+It takes a level of mindfulness to see that we have chances to fulfill our purpose in our everyday life. It's not to be found after some costly hyped-up seminar. It's right around you. 
 
-If all we take from 2020 is to stockpile more toilet paper, guns or to provide more COVID testing, we miss the chance to make ourselves and our society more resilient. 
+Your job as a human -- your purpose -- is to strive to live up to the best of your human capacities in your social roles and with yourself. Be good to yourself. Be excellent in your relationships.
 
-Placing all our hopes on the vaccine is narrow-minded resignation. At best, it can impede COVID-19 but not cure the illnesses of 2020. That's deeper than a needle can go.
+It's as easy as it is glamorous, but doing this "human stuff" well creates a foundational level of happiness that satisfies our need for meaning. 
 
-**Challenges and disasters are opportunities to emerge stronger.** We learn, adapt and grow forward, creating a new normal.
+That is our inherited purpose: to live for excellence. It's as simple and complicated as that.
 
-London rebuilt the city with stone and brick. Chicago with skyscrapers. In a historical sense, for those that persist, such optimism and alacrity create a better normal. 
-
-We've done it before. Now is a chance to be persuaded by calamity to look beyond our old normal towards healing, rebuilding and unity. 
+I am almost done talking about this...I think.

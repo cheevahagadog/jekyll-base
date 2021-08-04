@@ -1,7 +1,7 @@
 ---
 layout: post
-title:  "2020 is hindsight"
-date:   2021-01-01 13:46:40
+title:  "Can you tell me where to find a meaningful life?"
+date:   2021-01-31
 categories: 
 ---
 _"Be free! Freedom leads to happiness. It's not for us to tell you what to do or want. Your future is limitless. Dream big. Look inside yourself. Find your true passion. You do you. It's up to you to define your values." Etc. etc. etc._
