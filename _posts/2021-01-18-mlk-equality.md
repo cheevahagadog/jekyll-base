@@ -1,25 +1,26 @@
 ---
 layout: post
-title:  "2020 is hindsight"
-date:   2021-01-01 13:46:40
+title:  "MLK’s vision for genuine racial equality"
+date:   2021-01-18
 categories: 
 ---
-As we start 2021 with hope, we carry heavy lessons from turbulent 2020. Exactly what the lessons are and how we will interpret them in the coming months is less clear. 
+Today is Martin Luther King Jr. (MLK) day. We remember the civil rights movement and the vision and courage of MLK and many others who fought for their rights against institutionalized racism and segregation.
 
-What's more consistent is our yearning for things to be normal again.
+It is also a day to remember MLK's unfinished vision. Months before his assassination, MLK characterized the ongoing struggle for Blacks:
 
-**But if returning to normal means returning to a state that could set off 2020 again, I'm not sure normal is a good thing.**
+_"We are in a new era, a new phase of the struggle, where we have moved from a struggle for decency...**to a struggle for genuine equality."**_
 
-In 1871, after a fire devoured Chicago's wooden city, going back to normal might have meant building the city with wood again. The plague and devastating fires doubly hit London in 1666.
+Brown v. Board of Education, the Civil Rights Act and the Voting Rights Act of '54, '64 and '65 broke down the barriers of legalized segregation. They are landmark achievements, but **MLK did not see civil equality and economic equality as separable.**
 
-I once heard a crisis is a terrible thing to waste. This phrase makes more sense to me now. 
+Reacting to images of the fire hoses and dogs and vicious violence of the south, many whites supported the civic reforms towards legal equality but stopped short of genuine equality. 
 
-If all we take from 2020 is to stockpile more toilet paper, guns or to provide more COVID testing, we miss the chance to make ourselves and our society more resilient. 
+The next struggle for economic justice was to be against **the less visible villain of indifference.**
 
-Placing all our hopes on the vaccine is narrow-minded resignation. At best, it can impede COVID-19 but not cure the illnesses of 2020. That's deeper than a needle can go.
+The struggle remains. On top of the racial wealth gap, the COVID-19 pandemic is disproportionately destroying Black-owned businesses. They tend to lack the corporate structures, easy access to credit, large cash reserves and access government aid that non-Black businesses take for granted.
 
-**Challenges and disasters are opportunities to emerge stronger.** We learn, adapt and grow forward, creating a new normal.
+During the protests following George Floyd's death last June, Joe Biden declared, "We've had talk before; we had protest before. We've got to now vow to make this at least an era of action and reverse the systemic racism with long-overdue concrete changes."
 
-London rebuilt the city with stone and brick. Chicago with skyscrapers. In a historical sense, for those that persist, such optimism and alacrity create a better normal. 
+2021 could finally be when we move as a nation towards MLK's dream for genuine equality. 
 
-We've done it before. Now is a chance to be persuaded by calamity to look beyond our old normal towards healing, rebuilding and unity. 
+Start now by supporting Black or minority-owned businesses in your area.
+

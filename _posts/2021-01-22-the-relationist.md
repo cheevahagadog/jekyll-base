@@ -1,25 +1,27 @@
 ---
 layout: post
-title:  "2020 is hindsight"
-date:   2021-01-01 13:46:40
+title:  "The Relationist"
+date:   2021-01-22
 categories: 
 ---
-As we start 2021 with hope, we carry heavy lessons from turbulent 2020. Exactly what the lessons are and how we will interpret them in the coming months is less clear. 
+Last October I was walking to lunch with a friend. The VIce-Presidential debate happened the night before, and I glibly remarked about my hopes for the election outcome. Until that moment, I didn't realize that my friend felt differently. 
 
-What's more consistent is our yearning for things to be normal again.
+After about 30 minutes of awkward but polite conversation, it was clear that we disagreed. I tried to mute my sarcasm, but it slipped out once when I said, "If Darth Vader pretended to support the policies you supported, would you still vote for him?"
 
-**But if returning to normal means returning to a state that could set off 2020 again, I'm not sure normal is a good thing.**
+It's a struggle to communicate well and keep communicating after knowing you're not in the safety of mutual opinion.
 
-In 1871, after a fire devoured Chicago's wooden city, going back to normal might have meant building the city with wood again. The plague and devastating fires doubly hit London in 1666.
+I slipped up, but we carried on like usual. I was lucky. To disagree without damaging relation is the needed art of our day and one I need to practice.
 
-I once heard a crisis is a terrible thing to waste. This phrase makes more sense to me now. 
+A relationist will have opinions that will rub some the wrong way, but their primary focus is elevating commitment to each other over ideology. 
 
-If all we take from 2020 is to stockpile more toilet paper, guns or to provide more COVID testing, we miss the chance to make ourselves and our society more resilient. 
+This way of life will run you right into a sticky struggle of having to wait patiently, listen, and choose to see each person as a whole person - body, mind, heart and soul. 
 
-Placing all our hopes on the vaccine is narrow-minded resignation. At best, it can impede COVID-19 but not cure the illnesses of 2020. That's deeper than a needle can go.
+Relationists know that being 'efficient' with people won't work. They understand as Stephen Covey put it: 
+_**"With people, slow is fast and fast is slow."**_
 
-**Challenges and disasters are opportunities to emerge stronger.** We learn, adapt and grow forward, creating a new normal.
+A relationist optimizes for deep commitment over elevated ego. They know that one preserved friendship, one nurtured bond with a neighbor, keeps us from isolation and division. 
 
-London rebuilt the city with stone and brick. Chicago with skyscrapers. In a historical sense, for those that persist, such optimism and alacrity create a better normal. 
+We cannot afford to lose others' richness by sidelining only those who perfectly align with our preferences.
+My friend and I see many issues differently - economics, politics, religion - and he's one of the best people I know.  
 
-We've done it before. Now is a chance to be persuaded by calamity to look beyond our old normal towards healing, rebuilding and unity. 
+I hope those observations never surprise me. 

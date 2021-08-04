@@ -1,25 +1,23 @@
 ---
 layout: post
-title:  "2020 is hindsight"
-date:   2021-01-01 13:46:40
+title:  "Adventures in the underground"
+date:   2021-01-30
 categories: 
 ---
-As we start 2021 with hope, we carry heavy lessons from turbulent 2020. Exactly what the lessons are and how we will interpret them in the coming months is less clear. 
+"Squish" is never a good sound to hear when you step on your lawn. "Squish, squish, squish." I noticed a few swampy spots on my lawn located around by backyard sprinkler heads.
 
-What's more consistent is our yearning for things to be normal again.
+I was out of my depth, with no experience in sprinklers. Had some deep underground pipe cracked and was dumping water into my lawn? I was intimidated by this silent, ever-present leak.
 
-**But if returning to normal means returning to a state that could set off 2020 again, I'm not sure normal is a good thing.**
+I agonized over it for a month then asked my Uncle for advice. He thought maybe overgrown grass around the head caught too much water, causing it to pool around the head. So we tested that theory by trimming down the grass around each head. Still, "squish."
 
-In 1871, after a fire devoured Chicago's wooden city, going back to normal might have meant building the city with wood again. The plague and devastating fires doubly hit London in 1666.
+I was intimidated by my ignorance, bullied by PVC pipes and springloaded nozzles that shoot water, like a new kid in a neighborhood afraid of the big kids with the water guns. I was a sprinkler coward.
 
-I once heard a crisis is a terrible thing to waste. This phrase makes more sense to me now. 
+A few more months went by with "squish, squish, squish" every time I mowed my lawn, until one day I'd had enough. I was going to research on YouTube on this unknowable problem until I got some answers, come hell or, well, more water.
 
-If all we take from 2020 is to stockpile more toilet paper, guns or to provide more COVID testing, we miss the chance to make ourselves and our society more resilient. 
+I finally got an idea of what the problem might be from a dull but in-depth video: the solenoids in my control box. 
 
-Placing all our hopes on the vaccine is narrow-minded resignation. At best, it can impede COVID-19 but not cure the illnesses of 2020. That's deeper than a needle can go.
+So I went out, put on gardening gloves, removed the vines covering the box, found the zone and opened up the solenoid. Yep, there it was, a small jagged piece of metal that was preventing the valves from sealing off, creating a constant flow of water and a mini-swamp. 
 
-**Challenges and disasters are opportunities to emerge stronger.** We learn, adapt and grow forward, creating a new normal.
+My assumptions, procrastination, nail-biting, beating around the bush got me nothing but squishes and headaches. After one hour of research and action, it was a simple fix.
 
-London rebuilt the city with stone and brick. Chicago with skyscrapers. In a historical sense, for those that persist, such optimism and alacrity create a better normal. 
-
-We've done it before. Now is a chance to be persuaded by calamity to look beyond our old normal towards healing, rebuilding and unity. 
+Now about my front lawn!

@@ -1,25 +1,25 @@
 ---
 layout: post
-title:  "2020 is hindsight"
-date:   2021-01-01 13:46:40
+title:  "Hiking: the hack for reconnecting with friends"
+date:   2021-02-01 
 categories: 
 ---
-As we start 2021 with hope, we carry heavy lessons from turbulent 2020. Exactly what the lessons are and how we will interpret them in the coming months is less clear. 
+After I got married, I unknowingly made a colossal mistake. I withdrew into my marriage and lost touch with my friends. It was a typical, "you don't know what you have until…" scenario. 
 
-What's more consistent is our yearning for things to be normal again.
+Assuming things would remain the same, I forgot to reach out, and the relationships slowly withered.
 
-**But if returning to normal means returning to a state that could set off 2020 again, I'm not sure normal is a good thing.**
+Years later, as I realized my mistake, I tried to reach out and make contact again. It seemed too late for most of my high school and college chums. 
 
-In 1871, after a fire devoured Chicago's wooden city, going back to normal might have meant building the city with wood again. The plague and devastating fires doubly hit London in 1666.
+Some I didn't have their contact info, some moved away, and those still around were similarly busy with family and jobs. Hanging out, watching movies, or playing basketball was often too much work to coordinate or only offered fleeting chances for small talk.
 
-I once heard a crisis is a terrible thing to waste. This phrase makes more sense to me now. 
+I did get a few bites though. Usually it settled on "let's grab lunch sometime." That was before the pandemic. Even then, you'd only have your lunch break, minus travel time. Waiting in a line to order your food and then trying to talk between chews at a noisy burger joint, the conversations averaged around logistics: How's work? Do you like your job? How's Lauren? etc. 
 
-If all we take from 2020 is to stockpile more toilet paper, guns or to provide more COVID testing, we miss the chance to make ourselves and our society more resilient. 
+Then last year, I finally discovered a hack: hiking!
 
-Placing all our hopes on the vaccine is narrow-minded resignation. At best, it can impede COVID-19 but not cure the illnesses of 2020. That's deeper than a needle can go.
+Hiking is dedicating a good chunk of time to adventure together. Out there, there are no kids, jobs, or cell-phones to distract us, only the scenery. And we are free to fill the time to talk about our experiences, beliefs, challenges, and favorite movie quotes. 
 
-**Challenges and disasters are opportunities to emerge stronger.** We learn, adapt and grow forward, creating a new normal.
+Hiking together is an old treatment for a modern malady: loneliness and lack of connection. 
 
-London rebuilt the city with stone and brick. Chicago with skyscrapers. In a historical sense, for those that persist, such optimism and alacrity create a better normal. 
+I've discovered hiking as not only a fun physical activity but as a powerful and pandemic friendly technology for connecting with friends. 
 
-We've done it before. Now is a chance to be persuaded by calamity to look beyond our old normal towards healing, rebuilding and unity. 
+Maybe it's something else for you, but make sure you do it. It will make your 2021.

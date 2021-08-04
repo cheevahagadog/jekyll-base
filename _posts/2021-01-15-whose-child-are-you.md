@@ -1,25 +1,25 @@
 ---
 layout: post
-title:  "2020 is hindsight"
-date:   2021-01-01 13:46:40
+title:  "Who are your parents?"
+date:   2021-01-15
 categories: 
 ---
-As we start 2021 with hope, we carry heavy lessons from turbulent 2020. Exactly what the lessons are and how we will interpret them in the coming months is less clear. 
+My Dad was a dentist in an Afghanistan prison operating on captured Al-Queda soldiers and militants. One day before he began to work on a teenage prisoner, my Dad asked him, “So why are you here?” He replied, “Man, I was just born at the wrong time in the wrong place.”
 
-What's more consistent is our yearning for things to be normal again.
+That story has always stuck with me.
 
-**But if returning to normal means returning to a state that could set off 2020 again, I'm not sure normal is a good thing.**
+We all spin the lottery of life when we’re born. We have no control over what family we land in or what country we’re born into. At least not until young adulthood, we have little control over our upbringing.
 
-In 1871, after a fire devoured Chicago's wooden city, going back to normal might have meant building the city with wood again. The plague and devastating fires doubly hit London in 1666.
+Everybody gets different starting lines and default settings. **We may be created equal, but we are not born equal.**
 
-I once heard a crisis is a terrible thing to waste. This phrase makes more sense to me now. 
+Seneca wrote in his On The Shortness Of Life that _“We are in the habit of saying that it was not in our power to choose the parents who were allotted to us, that they were given to us by chance. **But we can choose whose children we would like to be.”**_
 
-If all we take from 2020 is to stockpile more toilet paper, guns or to provide more COVID testing, we miss the chance to make ourselves and our society more resilient. 
+Hopefully, we have loving, supportive families but sadly not everyone does. Seneca points out that we can choose to become ‘children’ of great people, ‘households of noble intellects.’ You can call on them anytime and “[they] will [never] be too busy to see you...or allow you to depart empty-handed.”
 
-Placing all our hopes on the vaccine is narrow-minded resignation. At best, it can impede COVID-19 but not cure the illnesses of 2020. That's deeper than a needle can go.
+We become the children of others when we learn from their teachings, try to copy their behavior, and take on their attributes.
 
-**Challenges and disasters are opportunities to emerge stronger.** We learn, adapt and grow forward, creating a new normal.
+Choosing our adoption house means choosing a philosophy, faith, or creed that resonates with us. We then inherit all that it has to offer, even if our actual family circumstances are meager.
 
-London rebuilt the city with stone and brick. Chicago with skyscrapers. In a historical sense, for those that persist, such optimism and alacrity create a better normal. 
+Seneca’s Stoicism reminds us of our power to choose and act. We can decide where the scripts we inherited from our family or culture aren’t working and find better ones. 
 
-We've done it before. Now is a chance to be persuaded by calamity to look beyond our old normal towards healing, rebuilding and unity. 
+Whose child are you? Choose wisely.

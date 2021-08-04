@@ -4,22 +4,22 @@ title:  "2020 is hindsight"
 date:   2021-01-01 13:46:40
 categories: 
 ---
-As we start 2021 with hope, we carry heavy lessons from turbulent 2020. Exactly what the lessons are and how we will interpret them in the coming months is less clear. 
+_"Be free! Freedom leads to happiness. It's not for us to tell you what to do or want. Your future is limitless. Dream big. Look inside yourself. Find your true passion. You do you. It's up to you to define your values." Etc. etc. etc._
 
-What's more consistent is our yearning for things to be normal again.
+Commencement addresses and TED talks transmit values like these in our culture to adults of all ages. These messages are good, **but they're ultimately hollow and empty when seeking direction and guidance on what to make of our lives.**
 
-**But if returning to normal means returning to a state that could set off 2020 again, I'm not sure normal is a good thing.**
+Here are two books that offer real advice on what to make of your life.
 
-In 1871, after a fire devoured Chicago's wooden city, going back to normal might have meant building the city with wood again. The plague and devastating fires doubly hit London in 1666.
+In In Tuesdays with Morrie, Morrie, an older man dying of ALS, passes on his life lessons to a younger man, Mitch. In one place, Morrie gracefully sums up how to make a meaningful life:
 
-I once heard a crisis is a terrible thing to waste. This phrase makes more sense to me now. 
+> _"Devote yourself to loving others, devote yourself to your community around you, and devote yourself to creating something that gives you purpose and meaning."_
+It's a beautiful and straightforward message: devote yourself to these things, and you can't miss.
+David Brooks' book The Second Mountain mixes nicely. For Brooks, achievement is great but a life of emotional freedom -- living uncommitted to others -- is not all it's advertised to be. The second mountain is where we move from autonomy and success to relation and devotion; from independence to interdependence.
+Brooks provides a framework for finding meaning in our lives, similar to Morrie's:
 
-If all we take from 2020 is to stockpile more toilet paper, guns or to provide more COVID testing, we miss the chance to make ourselves and our society more resilient. 
-
-Placing all our hopes on the vaccine is narrow-minded resignation. At best, it can impede COVID-19 but not cure the illnesses of 2020. That's deeper than a needle can go.
-
-**Challenges and disasters are opportunities to emerge stronger.** We learn, adapt and grow forward, creating a new normal.
-
-London rebuilt the city with stone and brick. Chicago with skyscrapers. In a historical sense, for those that persist, such optimism and alacrity create a better normal. 
-
-We've done it before. Now is a chance to be persuaded by calamity to look beyond our old normal towards healing, rebuilding and unity. 
+ - Devote yourself to a vocation
+ - Devote yourself to a marriage
+ - Devote yourself to a philosophy, religion, or creed
+ - Devote yourself to a community
+ 
+Both books provide something rare: direction and wisdom. We get to choose what we devote ourselves to. And our joy will match our devotion.

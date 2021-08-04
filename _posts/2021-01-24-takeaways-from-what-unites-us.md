@@ -1,25 +1,21 @@
 ---
 layout: post
-title:  "2020 is hindsight"
-date:   2021-01-01 13:46:40
+title:  "Takeaways from 'What Unites Us'"
+date:   2021-01-24
 categories: 
 ---
-As we start 2021 with hope, we carry heavy lessons from turbulent 2020. Exactly what the lessons are and how we will interpret them in the coming months is less clear. 
+A few months back, I saw a tweet from a woman whose mother was in a nursing home suffering from dementia, frequently confused and agitated. The only thing that soothed her mother was the soothing and familiar voice of Dan Rather narrating his audiobook _What Unites Us_. 
 
-What's more consistent is our yearning for things to be normal again.
+I just finished it today and found it steadying and encouraging. Bookended by essays on patriotism and citizenship, it's chock-full of top-notch essays and reflections on the arts, voting, character, and many more. Here are some of my top highlights:
 
-**But if returning to normal means returning to a state that could set off 2020 again, I'm not sure normal is a good thing.**
+Patriotism is a dialogue with fellow citizens "about not only what you love about your country but also about how it can be improved." "Patriotism is rooted in humility. Nationalism is rooted in arrogance."
+Rather advocates tolerance but says it is only "a prerequisite for a functional democracy." On its own, it is insufficient, "allow[ing] us to accept others without engaging with them." **Tolerance is only a stop along the way towards** _**"a much grander destination of inclusion."**_
 
-In 1871, after a fire devoured Chicago's wooden city, going back to normal might have meant building the city with wood again. The plague and devastating fires doubly hit London in 1666.
+In the afterward, Rather realizes that the book's title has turned from a statement into an urgent question for many of us: "What unites us?!"
 
-I once heard a crisis is a terrible thing to waste. This phrase makes more sense to me now. 
+For this unusually jarring time, this book is a collection of reasons to hope that we will live to "see healing where there was once hatred." 
 
-If all we take from 2020 is to stockpile more toilet paper, guns or to provide more COVID testing, we miss the chance to make ourselves and our society more resilient. 
+"There is still a place for optimism, but only if it is bolstered by hard work, perseverance, and a commitment by each of us to improve the well-being of our communities."
 
-Placing all our hopes on the vaccine is narrow-minded resignation. At best, it can impede COVID-19 but not cure the illnesses of 2020. That's deeper than a needle can go.
+Read this book if you can. It inspired me to be a more active citizen. It steadies the troubling present with decades of personal perspective. It disentangles the idea of patriotism from nationalism and offers a compelling case for betting on a brighter future.
 
-**Challenges and disasters are opportunities to emerge stronger.** We learn, adapt and grow forward, creating a new normal.
-
-London rebuilt the city with stone and brick. Chicago with skyscrapers. In a historical sense, for those that persist, such optimism and alacrity create a better normal. 
-
-We've done it before. Now is a chance to be persuaded by calamity to look beyond our old normal towards healing, rebuilding and unity. 

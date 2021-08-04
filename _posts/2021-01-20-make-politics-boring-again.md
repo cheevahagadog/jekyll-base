@@ -1,25 +1,24 @@
 ---
 layout: post
-title:  "2020 is hindsight"
-date:   2021-01-01 13:46:40
+title:  "Make politics boring again"
+date:   2021-01-20
 categories: 
 ---
-As we start 2021 with hope, we carry heavy lessons from turbulent 2020. Exactly what the lessons are and how we will interpret them in the coming months is less clear. 
+Today is a turning point for America and me. Despite becoming jaded by years of scandal and disgrace, I felt a gleam of American pride watching today's ceremonies. 
 
-What's more consistent is our yearning for things to be normal again.
+Watching democracy in action, "Politics" -- that Amygdala hijacking word -- seemed for a while, a little less explosive, a little warmer and a little more boring. 
 
-**But if returning to normal means returning to a state that could set off 2020 again, I'm not sure normal is a good thing.**
+The last five years have been anything but boring. The former president dominated the news almost daily with his distinctive and polarizing style. Whether a loyal supporter, an indignant opposer, or somewhere in between, it's been hard not to have him somewhere in your mind. 
 
-In 1871, after a fire devoured Chicago's wooden city, going back to normal might have meant building the city with wood again. The plague and devastating fires doubly hit London in 1666.
+A state of constant enthusiasm or indignation is the fever pitch politics to which we've become accustomed. And it's exhausting.
 
-I once heard a crisis is a terrible thing to waste. This phrase makes more sense to me now. 
+Someone who's helped me understand politics in a more sane way is David Brooks. He says:
+_"Politics at its best is a competition between partial truths. Republicans believe in freedom, Democrats believe in equality… It's about policies, about designing a healthcare system...but we've turned it into our ethnicity. **And when you turn politics into your ethnicity, any compromise is dishonor."**_
 
-If all we take from 2020 is to stockpile more toilet paper, guns or to provide more COVID testing, we miss the chance to make ourselves and our society more resilient. 
+We've put more on politics than politics can bear.  Politics was never meant to support our identities. It's important, but it's not that important. And there are better alternatives all around us.
 
-Placing all our hopes on the vaccine is narrow-minded resignation. At best, it can impede COVID-19 but not cure the illnesses of 2020. That's deeper than a needle can go.
+**Life is too precious to be emotionally agitated by politics all the time.** It's not worth your health. It's not worth our social health. I hope the national temperature will lower a bit with what happened today.
 
-**Challenges and disasters are opportunities to emerge stronger.** We learn, adapt and grow forward, creating a new normal.
+**We need politics to be boring again** (if it ever was). I hope for the possibility of not feeling like I have to think or react to what the president is doing every day. 
+That's more mental space for those around me.
 
-London rebuilt the city with stone and brick. Chicago with skyscrapers. In a historical sense, for those that persist, such optimism and alacrity create a better normal. 
-
-We've done it before. Now is a chance to be persuaded by calamity to look beyond our old normal towards healing, rebuilding and unity. 

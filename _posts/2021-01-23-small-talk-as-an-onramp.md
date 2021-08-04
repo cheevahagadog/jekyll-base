@@ -1,25 +1,24 @@
 ---
 layout: post
-title:  "2020 is hindsight"
-date:   2021-01-01 13:46:40
+title:  "Small talk as an onramp"
+date:   2021-01-23
 categories: 
 ---
-As we start 2021 with hope, we carry heavy lessons from turbulent 2020. Exactly what the lessons are and how we will interpret them in the coming months is less clear. 
+As an introvert, small talk has never come easy for me. I enjoy watching the occasional football or basketball game. Still, I can't talk at length about the recent trades or injuries. 
 
-What's more consistent is our yearning for things to be normal again.
+And the latest on TV or streaming shows? Nope, I'm lost. I don't say this to boast, for if anything, it's hindered me in quickly finding common ground in the break room.
 
-**But if returning to normal means returning to a state that could set off 2020 again, I'm not sure normal is a good thing.**
+Last year, I caught a ride home with a coworker who lived nearby. At one point, I asked bluntly, "So do you like astronomy?" "Oh, I love it!" she replied, and then we went on to talk about astronomy apps that let you see what's beyond the sky. 
 
-In 1871, after a fire devoured Chicago's wooden city, going back to normal might have meant building the city with wood again. The plague and devastating fires doubly hit London in 1666.
+That was lucky. Jumping into a conversation with no small talk is like jumping out of a plane without a parachute; chances are it will fall flat.
 
-I once heard a crisis is a terrible thing to waste. This phrase makes more sense to me now. 
+I used to resist because I felt an inner conflict. It was authenticity vs. trying to be somebody I'm not. **I condemned small talk for its banality. But that's like convicting can-openers or toilet plungers for being dull.**
+We need commonplace things to make life easier, and small-talk is no exception.
 
-If all we take from 2020 is to stockpile more toilet paper, guns or to provide more COVID testing, we miss the chance to make ourselves and our society more resilient. 
+Small talk is more than just pleasantry. It is about potential. Sometimes an acknowledging smile and a few pleasantries can be the beginning of turning around a tough morning. As Aesop said, _**"No act of kindness, no matter how small, is ever wasted."**_
 
-Placing all our hopes on the vaccine is narrow-minded resignation. At best, it can impede COVID-19 but not cure the illnesses of 2020. That's deeper than a needle can go.
+I don’t have a grand strategy for small talk. I smile. I ask, "What's been the best part of your week so far?" Or "What excites you these days?" I am genuine and leave it to them to share what they want. It’s a step in the right direction.
 
-**Challenges and disasters are opportunities to emerge stronger.** We learn, adapt and grow forward, creating a new normal.
+I've had it backward for so long. You start with banality and then ascend, reciprocate, and weave together. 
 
-London rebuilt the city with stone and brick. Chicago with skyscrapers. In a historical sense, for those that persist, such optimism and alacrity create a better normal. 
-
-We've done it before. Now is a chance to be persuaded by calamity to look beyond our old normal towards healing, rebuilding and unity. 
+Small talk gets you to talk with people. And people are where the gold is.
