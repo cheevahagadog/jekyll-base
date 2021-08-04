@@ -22,3 +22,5 @@ What is the purpose of a hammer? Simple! Its purpose is to hammer nails or remov
 
 A hammer is "happy" when its use conforms to its design, when it is used according to its purpose.
 As humans, we an inherited purpose. We don't need to go far to find it. We only need to recognize it in ourselves.
+
+[Part 2]({{site.baseurl}}{%link _posts/2021-01-17-another-look-at-purpose.md %})
